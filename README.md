@@ -22,3 +22,4 @@ Be the first to deploy AI agents with confidence. Early waitlist members receive
 
 ## 5. Call to Action (CTA)
 **Secure My Agent Now**
+https://forms.gle/NosEk4KvmuUZiuTv6
